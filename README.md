@@ -4,7 +4,7 @@
 ## ⭐️ 👉 地址一 ：https://YT9.TV
 ## ⭐️ 👉 地址二 ：https://www.yingtao19.com
 ## ⭐️ 👉 地址三 ：https://www.yingtao68.com
-## ⭐️ 👉 樱桃APP下载页 ：https://yingtao111.com
+## ⭐️ 👉 樱桃APP下载页 ：https://ev195.com/
 ## ⭐️ 👉 备用导航 ：https://yingtao.ink
 
 ## 导 航 永 久 域 名 	https://t.cn/EJc1wjk
